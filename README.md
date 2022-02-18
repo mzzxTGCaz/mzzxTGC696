@@ -4,7 +4,7 @@
 
 - 💞️ I'm looking to collaborate on weibo:信自z迷Tgc_
 
-- 📫 How to reach me QQ:771602200   Twitter:mzzxTGC696   bilibili:信自の迷ミTgc_
+- 📫 How to reach me QQ:771602200/18089884779   Twitter:mzzxTGC696   bilibili:信自の迷ミTgc_
 
 <!---
 mzzxTGC696/mzzxTGC696 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
