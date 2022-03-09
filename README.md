@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mzzxTGC696
 - 👀 I’m interested in the program,Illustration production etc
-- 🌱 I’m currently learning C++ Python Java
+- 🌱 I’m currently learning C++ Python Java and so on.
 
 - 💞️ I'm looking to collaborate on weibo:信自z迷Tgc_
 
